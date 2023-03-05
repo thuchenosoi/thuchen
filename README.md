@@ -1,0 +1,2 @@
+# thuchen
+lười, hay quên
